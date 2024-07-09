@@ -8,6 +8,8 @@
 
 - 🎯 My goals is, To be a **full-stack developer**
 
+- 🌐 All my socials [guns.lol/chriis](https://guns.lol/chriis)
+
 - 📫 How to reach me **Discord: chriis01**
 
 - 🏫 School **Bethlen Gábor Technikum**
